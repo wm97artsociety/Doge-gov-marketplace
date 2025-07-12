@@ -2,6 +2,8 @@
 
 🐕‍🦺 DOGE-ENABLED CRYPTO MARKETPLACE — SOFTWARE BIO
 
+feel free to attach my encryption to make it a 10 million marketplace once it is hooked up to a website server with people on it 
+
 📦 Name:
 
 DOGE-Gov NFT Marketplace (formerly ETH/USD Marketplace)
